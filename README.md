@@ -5,8 +5,8 @@
 
 My name is Toni, and I'm currently studying IT in Switzerland.
 
-- 💻 24/7 in front of this
-- 🎲 I like playing games and guitars.
+- 💻 10 hours per day in front of this
+- ♟️ I like playing chess and guitar.
 - 💬 Helping others, so they can suffer slightly less than I did
 
 
